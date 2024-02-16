@@ -1,2 +1,2 @@
 # Friday
-It's Friday
+
